@@ -1,2 +1,0 @@
-# kolab
-joel weds uday
